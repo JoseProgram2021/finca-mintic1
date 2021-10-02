@@ -1,0 +1,1 @@
+# finca-mintic1
